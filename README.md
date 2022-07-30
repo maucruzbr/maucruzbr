@@ -1,4 +1,4 @@
-![](https://imgur.com/a/LPyggiE)
+![](cruzm.br@outlook.com.png)
 
 Olá!
 
